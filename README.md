@@ -12,4 +12,5 @@ Thank You  UwU
 
 
 Lol Salaam
+inkilab jindabad
 ☭ 
